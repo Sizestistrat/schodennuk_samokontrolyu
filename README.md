@@ -11,3 +11,4 @@
 Кашин Володимир Романович
 
 Тягун Олексій Валерійович
+![0_2ae39_66028e67_orig](https://cloud.githubusercontent.com/assets/10174665/6652413/571433d0-ca76-11e4-9be1-b46c5dbe849a.jpeg)
